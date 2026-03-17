@@ -26,7 +26,7 @@
 <h3 align="center"> <img width="35" height="35" alt="image" src="https://64.media.tumblr.com/3ffaf9b3c757ec07136717513fbf2beb/49142d90a6ef8efb-5c/s250x400/0a1a56ac74b3ee94cc1f6d6244936702df618105.gifv" /> DNI + INT
 <h4 align="left"> <img width="35" height="35" alt="image" src="https://64.media.tumblr.com/4bfc9c6e23e8d7e82e532e45606b4f21/a60c4a1fea7aca07-2a/s75x75_c1/a714f3a73f12f707452c87fe7da2da83f0340bdf.gifv" /> DNI 
 <h5><align="left"> 1. Bullying for fun, not like joking bullying, but physically harming someone.
-<h5><align="left"> 2. Any1 Under 18 in the 18+ only server >> If on Safe Server, than no one >16 years old !
+<h5><align="left"> 2. Any1 Under 18 in the 18+ only server >> If on Safe Server, than no  one >16 years old !
 <h5><align="left"> 3. Fake diagnoses/Self diagnoses . 
 <h5><align="left"> 4. Ex/Ex friends .
 </br>
