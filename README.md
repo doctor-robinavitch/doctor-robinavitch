@@ -15,10 +15,10 @@
 <h1></h1> </h1> 
 <img width="400" height="350" alt="image" src="https://github.com/user-attachments/assets/31733bd1-78fb-4c6b-9826-bb125f68f64b" align="right" /> 
 <h3 align="center"> <img width="35" height="35" alt="image" src="https://64.media.tumblr.com/8c7669308cd43b69b96bd72c7a176cbf/a60c4a1fea7aca07-42/s75x75_c1/d5fbcb3c8c87fd8e1151a6db7fe0ab65120c592f.gifv" /> Before You INT
-<h5 align="left"> 1. Sometimes I may make Sexual Jokes, I am also sometimes uncomfortable with them. If you are, please lmk .</h5>
+<h5 align="left"> 1. I'm going through a lot, so Im either non-verbal or will talk seriously. So Iwec most of the time. .</h5>
 <h5><align="left"> 2. I can be AFK/Off Tab alot, feel free to W2I or DM (If you have me added elsewhere) .</h5>
-<h5><align="left"> 3. Basic DNI Criteria . 
-<h5><align="left"> 4. I have a typing quirk such as "- ' " + " _. " .
+<h5><align="left"> 3. Basic DNI Criteria. + If you are NOT a friend of mine but you decide to sit with me, I will not feel comfortable, Thanks. . 
+<h5><align="left"> 4. I have a typing quirk such as "- ' " Or a space followed by a period after a sentence. .
 </align></ul>
 </p>
 <img width="400" height="350" alt="image" src="https://64.media.tumblr.com/5af0fba89ce3cf285e24beb00098f155/5cd0b1e532df3388-a7/s540x810/fe8f6bac6164ffa7cd9f50785b2556c7383f1926.gifv" align="left"/>
