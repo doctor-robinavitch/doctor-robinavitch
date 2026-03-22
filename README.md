@@ -35,7 +35,7 @@
 <img width="400" height="350" alt="image" src="https://64.media.tumblr.com/888493d843e9ccebe217bd6519c2a94d/5cd0b1e532df3388-7e/s540x810/a83743b28c4fb54eb449f8928052283498346421.gifv" align="left"/>
 </br>
 <h4 align="left"> <img width="35" height="35" alt="image" src="https://64.media.tumblr.com/2a9833528681d7df8d8b2cdec5b15b2f/a60c4a1fea7aca07-17/s75x75_c1/48d22adee10ef9ab9e4ec92e03323790617a68bb.gifv" /> INT
-<h5><align="left"> OOMFS AND FRIENDS !! "We ride at dawn, oomfs" - Shawn hatosy
+<h5><align="left"> My friends.
 <h5><align="left"> Roblox Enjoyers 
 <h5><align="left"> CoD Lovers + Enjoyers (Ghoap 4 Life)
 <h5><align="left"> Zombie/Horror Game Lovers + Enjoyers 
