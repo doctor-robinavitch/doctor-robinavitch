@@ -17,7 +17,7 @@
 <h3 align="center"> <img width="35" height="35" alt="image" src="https://64.media.tumblr.com/8c7669308cd43b69b96bd72c7a176cbf/a60c4a1fea7aca07-42/s75x75_c1/d5fbcb3c8c87fd8e1151a6db7fe0ab65120c592f.gifv" /> Before You INT
 <h5 align="left"> 1. Currently in a bad position mentally, iwec at all times unless friends. .</h5>
 <h5><align="left"> 2. I can be AFK/Off Tab alot, feel free to W2I or DM (If you have me added elsewhere) .</h5>
-<h5><align="left"> 3. Basic DNI Criteria. + If you are NOT a friend of mine but you decide to sit with me, I will not feel comfortable, Thanks. . 
+<h5><align="left"> 3. Basic DNI Criteria . 
 <h5><align="left"> 4. I have a typing quirk such as "- ' " Or a space followed by a period after a sentence. .
 </align></ul>
 </p>
